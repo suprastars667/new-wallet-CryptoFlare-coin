@@ -1,1 +1,1 @@
-# new-wallet-coinpayu-coin
+# new-wallet-CryptoFlare-coin
